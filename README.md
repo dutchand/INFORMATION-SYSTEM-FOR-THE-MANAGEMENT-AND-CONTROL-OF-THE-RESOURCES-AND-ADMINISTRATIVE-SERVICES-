@@ -9,3 +9,4 @@ https://www.scribd.com/doc/74894700/Dustin-Edward-Fraser-SISTEMA-DE-INFORMACION-
 ![image](https://user-images.githubusercontent.com/6117230/141403483-438e0979-61a9-4ff2-91c5-bc06f40b31d1.png)
 ![image](https://user-images.githubusercontent.com/6117230/141403584-55c56924-ef95-4978-b782-eb106df336ba.png)
 ![image](https://user-images.githubusercontent.com/6117230/141403644-0de95373-cabd-4331-a94a-a3cb971a62ad.png)
+![image](https://user-images.githubusercontent.com/6117230/141403885-fecf1981-b985-47f7-afb1-3a0dbe8d5ac0.png)
